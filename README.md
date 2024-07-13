@@ -1,3 +1,1 @@
-# INSANEzou.
-what i can do
-she leave , but me.
+what can i say ?
