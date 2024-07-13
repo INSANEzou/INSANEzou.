@@ -1,3 +1,3 @@
 # INSANEzou.
 what i can do
-she leave , but me.
+/nshe leave , but me.
